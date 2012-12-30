@@ -1,0 +1,4 @@
+pamysuduny.github.com
+=====================
+
+byokeirtoawhayqo
